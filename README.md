@@ -1,3 +1,3 @@
 # bored
 
- hey folks in her just some random stuff
+ hey folks in here just some random stuff
